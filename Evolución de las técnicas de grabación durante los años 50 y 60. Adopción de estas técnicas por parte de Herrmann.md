@@ -1,4 +1,4 @@
-## 1950-1960
+## Decada (1950-1960)
 Durante las décadas de 1950 y 1960, las técnicas de grabación vivieron una auténtica revolución. Pasamos de un mundo analógico limitado y rudimentario a una era de experimentación y avances que cambiaron para siempre la música y el cine.
 Bernard Herrmann supo aprovechar al máximo esas nuevas posibilidades.
 
