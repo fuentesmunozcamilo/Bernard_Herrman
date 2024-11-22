@@ -21,7 +21,3 @@ Herrmann era conocido por su habilidad para emplear disonancias y texturas compl
 ## Influencia de la Música Clásica y la Música Contemporánea
 
 Aunque muchos compositores de la época se influenciaron por la música clásica, Herrmann fue uno de los primeros en incorporar elementos de la música contemporánea y experimental en sus composiciones cinematográficas. Su admiración por compositores como Igor Stravinsky y Arnold Schoenberg se reflejó en su estilo único, que se alejaba de la estructura tradicional de las partituras de cine de la época. Esta fusión de lo clásico y lo moderno le permitió crear composiciones que desafiaban las expectativas del público y ofrecían una experiencia auditiva más rica y compleja.
-
-## Conclusión
-
-Bernard Herrmann se destacó por su capacidad para desafiar las normas de la música de cine en su tiempo. Su enfoque innovador y su estilo único lo alejaron de las convenciones de Hollywood, creando una identidad sonora inconfundible. Si bien compartió la pantalla con otros grandes compositores de su época, su habilidad para fusionar la música clásica, el experimentalismo y la narración emocional lo convirtió en un referente en la historia de la música de cine. Su legado sigue vivo en las composiciones de cine contemporáneo, donde su influencia es evidente incluso en las obras más modernas.
